@@ -1,0 +1,3 @@
+- love tesla
+- hyperloop is future travel mode
+- solarcity is sustainable energy
