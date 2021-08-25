@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- love tesla
+- hyperloop is future travel mode
+- solarcity is sustainable energy
